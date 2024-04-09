@@ -1,2 +1,2 @@
 Amrit Bola
-10
+
